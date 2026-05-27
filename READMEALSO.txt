@@ -1,0 +1,1 @@
+Hello, thares a lot of html im also learning like imgs and more tages, adn js as that tags into html giving more life to the webpages, Also not forgoteting CSS for the stlye. and color and giving the webpage flavor, thank you for yor paahons1.
